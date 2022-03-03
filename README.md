@@ -1,1 +1,1 @@
-# Hunter-x-Hunter.
+# Hunterx
